@@ -30,6 +30,12 @@ Leticia Portella
                             
 
 
+### Instructor
+
+Leticia Portella 
+                            
+
+
                             
 
 Check out my other courses on [LinkedIn Learning](https://www.linkedin.com/learning/instructors/leticia-portella).
